@@ -1,3 +1,4 @@
+
 Journal Retracts 1998 Paper Linking Autism to Vaccines
 
 By Gardiner Harris
